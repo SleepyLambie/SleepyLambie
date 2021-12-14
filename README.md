@@ -4,7 +4,7 @@ I'm Lambie. Before you dive into my profile, here are a few things I want you to
 - 🙋🏻‍♀️I am a 21-year-old girl from Western Canada
 - 📖 I'm a self taught coder!
 - ✝️ I'm a non denominational Christian 
-- 💬 [Pronouns](https://studentaffairs.duke.edu/csgd/training-resources/gender-pronouns): **[she/her/hers](http://pronoun.is/she)** (http://pronoun.is/she)**
+- 💬 [Pronouns](https://studentaffairs.duke.edu/csgd/training-resources/gender-pronouns): **[she/her/hers](http://pronoun.is/she)** 
   - "**She** is a cool person." 
   - "I gave **her** a gift." 
   - "The phone is **hers**." 
